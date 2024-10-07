@@ -6,7 +6,7 @@
 
 ## Side Things:
 - Anime funtime, I read lots of visual novels ╰(*°▽°*)╯
-- I play chess sometimes ヾ(•ω•`)o, my elo is about 1100-1200
+- I play chess sometimes ヾ(•ω•`)o, my elo is about 1600
 - I can speak Vietnamese, English and Japanese (╹ڡ╹ )
 - Final Notes:
 > If there is anything or a mistake, please do point it out for me
